@@ -1,7 +1,7 @@
 # growth-fearless
 Remember the comfortable days
 
-Hi, I am Nick. Just passed my 28th Birthday, seen the rising sun 10,220 times and hoping to see another 10,220 more but this time with a clearer purpose and drive.
+Hi, I am Nick. Just passed my 28th Birthday, seen the rising sun 10,220 times and hoping to see another 10,220 more but this time with a clearer sense of purpose and drive.
 
 From the days after my initial first heartbreak 2019, I decided to embark on a journey of self-discovery and I have not stop ever since. It has been a year now and a lot have changed since. This is a list of things I've did since the breakup. 
 
